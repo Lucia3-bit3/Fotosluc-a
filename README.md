@@ -1,2 +1,2 @@
-# Fotosluc-a
+# Fotosluzzz
 Estudio de fotos
